@@ -14,5 +14,5 @@ Tam leisure
 - [ ] Buy new front brake caliper
 - [ ] Buy oil
 - [ ] Buy repair kit
-- [ ] 
+- [ ] Choose date
 
