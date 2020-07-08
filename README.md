@@ -16,3 +16,26 @@ Tam leisure
 - [ ] Buy repair kit
 - [ ] Choose date
 
+. 2x500ml frame mounted bottles, 1x500ml bottle in my back pocket
+
+2. Garmin 1030
+
+3. External power pack with leads for phone and garmin
+
+4. Socket chargers x2 to charge everything overnight
+
+5. Spare set of cycling kit
+
+6. Gilet
+
+7. Arm warmers
+
+8. Bike lube
+
+9. Insulation tape (solves almost anything)
+
+10. Sunscreen and lypsyl (*which I lost early on and am paying the price for now with seriously cracked lips!)
+
+11. Pair of boxer shorts to sleep in
+
+12. Toothbrush and toothpaste
