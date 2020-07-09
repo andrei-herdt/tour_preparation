@@ -39,3 +39,5 @@ Tam leisure
 11. Pair of boxer shorts to sleep in
 
 12. Toothbrush and toothpaste
+
+- [] Bottle
